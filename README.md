@@ -1,1 +1,2 @@
-#git Training
+WAKE AND , GRAB A BRUSH AND PUT A LITTLE MAKEUP .
+
